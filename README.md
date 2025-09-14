@@ -11,11 +11,3 @@ What drives me?
 ➾ Helping businesses overcome technical roadblocks effortlessly.
 ➾ Bridging the gap between users and technology through clear, empathetic communication.
 ➾ Turning complex challenges into simple, actionable solutions that create lasting value.
-
-
-Find me on:
-
-➾ Portfolio- https://limon.com.bd
-➾ About- https://about.me/mohammadlimon408
-➾ Facebook- https://www.facebook.com/limonhossain408
-➾ WordPress.org Profile: https://profiles.wordpress.org/mohammads011
